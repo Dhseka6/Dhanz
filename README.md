@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Business analytics 
 - 💞️ I’m looking to collaborate on business lead
 - 📫 How to reach me @instagram@dhseka6
-- 😄 Pronouns: ...
+- 😄 Pronouns: @Kumare
 - ⚡ Fun fact: am thing about when will come weekend 
 
 <!---

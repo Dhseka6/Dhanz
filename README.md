@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on business lead
 - 📫 How to reach me @instagram@dhseka6
 - 😄 Pronouns: @Kumare
-- ⚡ Fun fact: am thing about when will come weekend 
+- ⚡ Fun fact: am thingking  about when will come weekend 
 
 <!---
 Dhseka6/Dhseka6 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
